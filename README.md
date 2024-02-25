@@ -1,1 +1,1 @@
-GitHub Celestial-Remembrance Decorative Title
+Celestial-Remembrance Decorative Title
